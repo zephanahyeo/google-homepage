@@ -1,0 +1,1 @@
+hey fam im cloning google to get good at CSS, it's for a class, what's up i'm super out of it lately. do you think happiness will be guaranteed to each of us someday? do you think i'll find a partner? i'm tired af. 
